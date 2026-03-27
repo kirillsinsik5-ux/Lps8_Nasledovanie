@@ -1,0 +1,1 @@
+# Lps8_Nasledovanie
